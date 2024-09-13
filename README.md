@@ -7,12 +7,4 @@ There are 3 files which we will be creating as part of this tutorial. One is the
 
 
 Follow me @: 
-https://www.instagram.com/thetips4you
-
-https://www.instagram.com/thetipsforyou
-
-https://www.youtube.com/channel/UCoOq-DtESvayx5yJE5H6-qQ
-
-https://fb.me/thetipsforall
-
-http://www.thetips4you.com
+https://www.linkedin.com/in/abdul-quddus-ansari 
